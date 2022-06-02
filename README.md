@@ -1,4 +1,4 @@
-- 👋 Hi, mi nombre es Jatnael Gaspar Lopez Soy estudiante de la Universidad Autónoma Benito Juárez de Oaxaca, de la licenciatura en computacion.  ME gusta trabajr en equipo  ya que no soy muy bueno en el ambito de la informatica pero es algo que me apasiona.
+- 👋 Hi, mi nombre es Jatnael Gaspar Lopez Soy estudiante de la Universidad Autónoma Benito Juárez de Oaxaca, de la licenciatura en computacion, perteneciente a la facultad de la escuela de ciencias.
   
 -----------------------------------------------------------------------------------------------------------------------------------------------------
 - 🌱 I’m currently learning  distintos lenguajes de programacion ,  como son, el lenguaje c, javascript y espero seguir aprendiendo mas durante durante estos 4 años.
