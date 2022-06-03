@@ -13,7 +13,9 @@ LENGUAJES DE PROGRAMACION QUE ESTOY APRENDIENDO A USAR:
 
 CONTACTAME:
 
-Email: jatnaelgaspar1@gmail.com
+Email: jatnaelgaspar1@gmail.
+
+instagram: https://www.instagram.com/jat_gaspar/
 
 
 
