@@ -13,8 +13,16 @@ LENGUAJES DE PROGRAMACION QUE ESTOY APRENDIENDO A USAR:
 
 EDITORES DE CODIGO QUE UTILIZO:
 
-![image](https://user-images.githubusercontent.com/94131029/172433119-59438958-93ab-4354-ae84-d065398a63bb.png)
-![image](https://user-images.githubusercontent.com/94131029/172433520-4bd49d90-cb5d-4325-b69e-8c2f0fd2c2b8.png)
+![sdvfwr](https://user-images.githubusercontent.com/94131029/173400892-31c3bae9-d913-4759-849f-859901bdbca7.jpg)
+
+
+![yuuuu](https://user-images.githubusercontent.com/94131029/173400186-8de09fcf-25d8-46d8-98a8-1050c314fc6a.jpg)
+
+
+
+
+
+
 
 
 
